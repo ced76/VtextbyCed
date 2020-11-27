@@ -1,0 +1,2 @@
+# VtextbyCed
+Jangan dibuat jahat
